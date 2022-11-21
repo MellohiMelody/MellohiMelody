@@ -1,3 +1,3 @@
-- hiya! i'm netzy!
+- hiya! i'm melody!
 - i make content on platforms (factual statement)
 - and you cant stop me (also factual statement)
